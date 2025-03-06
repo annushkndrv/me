@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 mipt, biotechnology 3rd course<br>👾 interesting in biostatistics, ml in biomedicine<br>🪆 russian bimbo<br>
+🌱 mipt, biotechnology 3rd course<br>👾 interesting in biostatistics, ml in biomedicine<br>
 
 
 ## 🌐 Socials:
