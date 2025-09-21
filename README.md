@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 mipt, biotechnology 3rd course<br>👾 interesting in biostatistics, ml in biomedicine<br>
+🌱 mipt, biotechnology 4th course<br>👾 interesting in statistics, ml<br>
 
 
 ## 🌐 Socials:
